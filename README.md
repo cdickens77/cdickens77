@@ -6,5 +6,5 @@
 
 Projects I'm involved in are typically data analytics/reporting, accounting, automation, service provisioning and monitoring related with a mix of platforms.
 
-For project commissions or other inquiries my e-mail is: cdickens@object-zone.net
+For project commissions or other inquiries my e-mail is: cdickens@object-zone.net. Of course you can DM me here or at my Twitter also.
 
